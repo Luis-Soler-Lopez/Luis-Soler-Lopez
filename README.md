@@ -1,6 +1,6 @@
 Hi, I’m @Luis-Soler-López  
 Bioinformatic🧬-Biology🌾-Plant's Molecular Biology🌱-Viticulture🍇  
-Interested in applied biotechnology, genomics and bioinformatics to a plants and agronomics field.
+Interested in applied biotechnology, genomics and bioinformatics to a plants and agronomic field.
 
 Mail: luis.sol.lop@gmail.com  
 
